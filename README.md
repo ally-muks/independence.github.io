@@ -1,1 +1,1 @@
-# independence.github.io
+# independence
